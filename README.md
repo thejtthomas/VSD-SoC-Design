@@ -28,6 +28,12 @@ CMOS
 
 ![5](https://github.com/user-attachments/assets/d628da44-c50e-4652-8a7b-0c897b8470fc)
 
+
 ![6](https://github.com/user-attachments/assets/a3e40119-f256-4ee6-a2d4-e96c78db0269)
 
 ![7](https://github.com/user-attachments/assets/b6e2fd44-828d-4112-b3fc-62a4b0eb366e)
+
+![8](https://github.com/user-attachments/assets/562a7391-f3af-439e-8976-808f46061a91)
+
+![9](https://github.com/user-attachments/assets/71fd0826-8314-4109-bbab-157dead5493b)
+![10](https://github.com/user-attachments/assets/5798c681-cb1e-487d-a4bb-c3cf3de94dfe)
