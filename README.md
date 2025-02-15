@@ -30,9 +30,23 @@
 ![VirtualBox_vsdworkshop_10_02_2025_16_58_45](https://github.com/user-attachments/assets/90f246ea-6e97-44d4-9cc7-fcd3c91caac7)
 ![VirtualBox_vsdworkshop_10_02_2025_16_48_30](https://github.com/user-attachments/assets/d87e6b6f-2aae-4fa2-9a42-0cce0e0630af)
 ![VirtualBox_vsdworkshop_10_02_2025_16_45_01](https://github.com/user-attachments/assets/2c5445c2-8a23-496c-8486-271063538734)
+
+
 ![VirtualBox_vsdworkshop_10_02_2025_16_40_36](https://github.com/user-attachments/assets/bdf4fd43-0bd1-4862-b58a-1606d88edb68)
 ![VirtualBox_vsdworkshop_10_02_2025_16_37_06](https://github.com/user-attachments/assets/32bf53fd-9f9f-4ab5-b972-bc8228c4b90c)
 ![VirtualBox_vsdworkshop_10_02_2025_16_04_53](https://github.com/user-attachments/assets/0b43f1bf-323a-4528-8888-e53cece7a17d)
 ![VirtualBox_vsdworkshop_10_02_2025_15_32_59](https://github.com/user-attachments/assets/f8d292b1-56dc-4803-80b7-43edfaf73e99)
 ![Screenshot 2025-02-11 124206](https://github.com/user-attachments/assets/2238d3d9-f410-40a4-9a6e-d16968acd620)
 ![assignemnt](https://github.com/user-attachments/assets/f98726f6-65fc-4bc1-a7d9-f3eb86db400a)
+
+CMOS 
+![1](https://github.com/user-attachments/assets/9e66c733-7e4d-4c09-b4f4-e0e4c0cf423a)
+![2](https://github.com/user-attachments/assets/00bfd37a-b395-4545-bf6f-07a28dadf1ef)
+![3](https://github.com/user-attachments/assets/8262a2f4-6323-46fe-a25b-73cc34bc216c)
+![4](https://github.com/user-attachments/assets/318840a8-56d5-49cd-b2b2-688eee88be07)
+
+![5](https://github.com/user-attachments/assets/d628da44-c50e-4652-8a7b-0c897b8470fc)
+
+![6](https://github.com/user-attachments/assets/a3e40119-f256-4ee6-a2d4-e96c78db0269)
+
+![7](https://github.com/user-attachments/assets/b6e2fd44-828d-4112-b3fc-62a4b0eb366e)
